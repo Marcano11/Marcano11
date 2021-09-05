@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Marcano11
-- 👀 I’m interested in so many things and honestly i could change this every day 
+- 👀 I’m interested in expanding my knowledge about technology and how to consciously use it for our highest good
 - 🌱 I’m currently learning cumputer science 
 - 💞️ I’m looking to collaborate on learning to code
 - 📫 How to reach me francescaadam9@gmail.com
