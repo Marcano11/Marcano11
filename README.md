@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Marcano11
 - 👀 Cypto & NFT's are my favvz
 - 🌱 I’m currently learning to code
-- 💞️ I’m looking for a study buddy and beginners projects!
+- 💞️ I’m looking for a study buddy to make beginners projects!
 - 📫 How to reach me francescaadam9@gmail.com
 
 <!---
