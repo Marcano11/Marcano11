@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Marcano11
-- 👀 I’m interested in expanding my knowledge about technology and how to consciously use it for our highest good
-- 🌱 I’m currently learning cumputer science 
+- 👀 Cypto & NFT's are my favvz
+- 🌱 I’m currently learning to code
 - 💞️ I’m looking to collaborate on learning to code
 - 📫 How to reach me francescaadam9@gmail.com
 
